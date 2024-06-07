@@ -1,16 +1,14 @@
-## Hi there 👋
+ $$$   hello sejam bem vidos ao meu perfil   $$$
 
-<!--
-**gatinha023/gatinha023** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Me chmao Nikoly Vitoria 
 
-Here are some ideas to get you started:
+Atualamente estuda na escola Magdelena no ultimo ano
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Meu perfil, serve para incentivalos com os meus projetos,
+e compartilhar momentos 
+
+Para me acompanhar mais me siga la @Nikprates 
+
+
+
+
